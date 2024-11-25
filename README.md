@@ -19,7 +19,7 @@ I am a dedicated **Data Analyst** with a passion for transforming data into acti
 
 ## Let's Connect
 
-- 🌐 **LinkedIn**: https://www.linkedin.com/in/teemraj-sharma-34840b2bb/
+- 🌐 **LinkedIn**: https://www.linkedin.com/in/teemraj-sharma/
 
 
 ## Fun Facts
